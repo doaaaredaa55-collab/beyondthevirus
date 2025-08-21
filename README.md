@@ -12,7 +12,7 @@
 | Shahd Wagih     | [@](https://github.com/) | [@shahd-wagih](https://www.linkedin.com/in/shahd-wagih) |
 | Ahmed Hasan     | [@thisisahmed10](https://github.com/thisisahmed10) | [@ahmed-hasan-263521192](https://www.linkedin.com/in/ahmed-hasan-263521192) |
 | Khaled Mohammed | [@Kelabsawy](https://github.com/Kelabsawy) | [@](https://www.linkedin.com/in/) |
-| Ali Hasan       | [@](https://github.com/) | [@](https://www.linkedin.com/in/) |
+| Ali Hasan       | [@ALienXt007](https://github.com/ALienXt007) | [@](https://www.linkedin.com/in/) |
 
 ---
 
