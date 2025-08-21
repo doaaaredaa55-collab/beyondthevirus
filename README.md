@@ -11,7 +11,7 @@
 | Nagham Essam    | [@naghamEssam119](https://github.com/NaghamEssam119) | [@naghamessam](https://www.linkedin.com/in/naghamessam) |
 | Shahd Wagih     | [@shahdwagih](https://github.com/shahdwagih) | [@shahd-wagih](https://www.linkedin.com/in/shahd-wagih) |
 | Ahmed Hasan     | [@thisisahmed10](https://github.com/thisisahmed10) | [@ahmed-hasan-263521192](https://www.linkedin.com/in/ahmed-hasan-263521192) |
-| Khaled Mohammed | [@kelabsawy](https://github.com/Kelabsawy) | [@](https://www.linkedin.com/in/) |
+| Khaled Mohammed | [@kelabsawy](https://github.com/Kelabsawy) | [@khaledelabsawy](https://www.linkedin.com/in/khaledelabsawy) |
 | Ali Hasan       | [@aLienXt007](https://github.com/ALienXt007) | [@alialghorab](https://www.linkedin.com/in/alialghorab) |
 
 ---
