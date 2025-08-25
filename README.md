@@ -3,7 +3,7 @@
 
 ---
 
-## Feel free to chick our footage
+## Feel free to chick our resources
 [Footage drive](https://aunedu-my.sharepoint.com/:f:/g/personal/ahmed_hassan495_eng_aun_edu_eg/El8ZFXC583NDuBpesh-iZawBT_DzqGvbZoqBV_66EHmq6w?e=QeugKU)
 
 ### Our Team
