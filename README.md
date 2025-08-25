@@ -1,5 +1,5 @@
-# Depi 3 - Final project - Mental health
-2D animated video talks about how important mental health is.
+# Depi 3 - Final project - beyond the virus
+2D animated video talks about consequences of a virus.
 
 ---
 
